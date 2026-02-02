@@ -1,1 +1,3 @@
-# give-up-worry-for-lent
+# *Give Up Worry for Lent!: A Transformative Journey from Anxiety to Trust*
+## *Lent is traditionally associated with “giving things up”—chocolate, social media, or that extra cup of coffee. But what if the thing holding you back from a deeper relationship with God isn’t a physical indulgence, but a mental stronghold? In “Give Up Worry for Lent!: 40 Days to Finding Peace in Christ”, Catholic speaker and author Gary Zimak proposes a radical shift: fast from anxiety and feast on trust.* [More details…](https://spiritualkhazaana.com/give-up-worry-for-lent-from-anxiety-to-trust/)
+## #giveup #surrender #lent #holyweek #thingstogiveupforlent
